@@ -21,11 +21,11 @@ The mediator plays a crucial role in resolving workplace conflict. Some key task
 
 Successful mediation requires a set of key skills. Some of these skills include:
 
-- ****Active listeni**ng**: The mediator must be able to listen actively and empathetically to all parties involved to truly understand their interests and needs.
-- ****Neutrali**ty**: The mediator must remain neutral throughout the mediation process and avoid taking sides or showing bias toward one party.
-- ****Strong communicati**on**: Effective communication is essential for successful mediation. The mediator must be able to communicate clearly and effectively, especially when discussing complex or emotional issues.
-- ****Creativi**ty**: A mediator may need to think creatively to identify potential solutions that meet the needs of all parties involved.
-- ****Patience and persisten**ce**: Mediation can be time-consuming and challenging, so the mediator must have patience and persistence to work through the issues and find a resolution.
+- **Active listening**: The mediator must be able to listen actively and empathetically to all parties involved to truly understand their interests and needs.
+- **Neutrality**: The mediator must remain neutral throughout the mediation process and avoid taking sides or showing bias toward one party.
+- **Strong communication**: Effective communication is essential for successful mediation. The mediator must be able to communicate clearly and effectively, especially when discussing complex or emotional issues.
+- **Creativity**: A mediator may need to think creatively to identify potential solutions that meet the needs of all parties involved.
+- **Patience and persistence**: Mediation can be time-consuming and challenging, so the mediator must have patience and persistence to work through the issues and find a resolution.
 
 ## Conclusion
 

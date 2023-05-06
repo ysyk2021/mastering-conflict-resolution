@@ -10,19 +10,19 @@ Negotiation is a process of communication between two or more parties with the g
 
 Effective negotiation requires careful preparation and the use of various strategies to reach a mutually beneficial outcome. Some common strategies for successful negotiation include:
 
-- ****Identifying common goa**ls**: Finding mutually shared goals can help parties work together and find creative solutions that meet everyone's needs.
-- ****Offering multiple optio**ns**: Providing several potential solutions can create more opportunities for agreement and help avoid a "win-lose" mentality.
-- ****Active listeni**ng**: Listening actively and empathetically to the other party can help build trust and understanding, leading to a more productive negotiation.
-- ****Understanding the other party's interes**ts**: Understanding the other party's interests and motivations can help uncover areas of overlap and potential compromise.
+- **Identifying common goals**: Finding mutually shared goals can help parties work together and find creative solutions that meet everyone's needs.
+- **Offering multiple options**: Providing several potential solutions can create more opportunities for agreement and help avoid a "win-lose" mentality.
+- **Active listening**: Listening actively and empathetically to the other party can help build trust and understanding, leading to a more productive negotiation.
+- **Understanding the other party's interests**: Understanding the other party's interests and motivations can help uncover areas of overlap and potential compromise.
 
 ## Key Skills for Effective Negotiation
 
 Successful negotiation requires a set of key skills. Some of these skills include:
 
-- ****Communicati**on**: Effective communication is vital for negotiation. This involves being clear and concise in your communication, active listening, and using empathy to understand the other party's perspective.
-- **Creativity**:y**: Finding innovative solutions often requires creative thinking and outside-the-box problem solving.
-- **Flexibility**:y**: Being open to new ideas and willing to adapt your approach can help move negotiations forward.
-- **Patience**:e**: Negotiations can be complex and time-consuming, so patience is essential to a successful outcome.
+- **Communication**: Effective communication is vital for negotiation. This involves being clear and concise in your communication, active listening, and using empathy to understand the other party's perspective.
+- **Creativity**: Finding innovative solutions often requires creative thinking and outside-the-box problem solving.
+- **Flexibility**: Being open to new ideas and willing to adapt your approach can help move negotiations forward.
+- **Patience**: Negotiations can be complex and time-consuming, so patience is essential to a successful outcome.
 
 ## Conclusion
 

@@ -90,6 +90,8 @@
     - [Developing effective policies and procedures](chapter-11-2.md)
     - [Training employees on workplace conflict resolution](chapter-11-3.md)
 
-
 - [Conclusion](conclusion.md)
+- [Next Steps](next-steps.md)
+- [Appendix: Conflict resolution exercises and activities](appendix-1.md)
+- [Appendix: Sample conflict resolution policies and procedures](appendix-2.md)
 - [Contacts](contacts.md)
