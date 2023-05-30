@@ -10,7 +10,7 @@ In this book, we will explore the most effective strategies and best practices f
 
 Whether you're a manager looking to improve employee relations, a human resources professional tasked with resolving disputes, or an individual who wants to develop your conflict resolution skills, this book will provide you with the insights and practical advice you need to succeed. So let's dive in and begin mastering conflict resolution in the workplace.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
 Conflict resolution
