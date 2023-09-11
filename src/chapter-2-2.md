@@ -1,4 +1,4 @@
-# The Role of Emotions in Workplace Conflict
+
 
 Emotions play a significant role in workplace conflict. When individuals experience negative emotions such as anger, fear, and frustration, conflicts can intensify and communication can break down. In this chapter, we will explore the importance of managing emotions during workplace conflict, strategies for doing so, and the role that emotions can play in conflict resolution.
 

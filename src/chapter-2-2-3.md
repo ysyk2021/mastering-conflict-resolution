@@ -1,4 +1,4 @@
-# The Importance of Positive Emotional States
+
 
 Emotions play an important role in workplace conflict and can either fuel disagreements or promote collaboration. Positive emotions, in particular, can have a significant impact on conflict resolution and the overall work environment. In this chapter, we will explore the importance of positive emotional states in workplace conflict and strategies for promoting positive emotions during conflict resolution.
 

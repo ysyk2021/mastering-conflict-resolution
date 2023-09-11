@@ -1,4 +1,4 @@
-# Active Listening
+
 
 Active listening is a critical tool for improving communication and resolving workplace conflict. When individuals listen attentively and show empathy, they can foster mutual understanding and promote collaboration. In this chapter, we will explore the benefits of active listening in workplace conflict and strategies for using it effectively.
 

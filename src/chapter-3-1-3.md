@@ -1,4 +1,4 @@
-# Overcoming Communication Barriers in Workplace Conflict Resolution
+
 
 Effective communication is critical in resolving workplace conflict, but there are many barriers that can make communication challenging. Here are some common communication barriers in workplace conflict resolution and strategies for overcoming them:
 

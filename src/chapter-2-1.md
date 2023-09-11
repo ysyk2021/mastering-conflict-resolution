@@ -1,4 +1,4 @@
-# Understanding Human Responses to Workplace Conflict
+
 
 Understanding the psychology behind workplace conflict is an essential part of mastering conflict resolution. In this chapter, we will explore the human responses to workplace conflict, including the physiological and psychological effects of conflict, the role of emotions in conflict, and the importance of perception.
 

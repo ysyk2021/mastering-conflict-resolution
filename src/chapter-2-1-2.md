@@ -1,4 +1,4 @@
-# The Role of Emotions in Conflict
+
 
 Workplace conflict is inevitable and can lead to negative outcomes such as decreased productivity, low morale, and high turnover rates. One significant factor that contributes to the escalation of workplace conflicts is emotions.
 

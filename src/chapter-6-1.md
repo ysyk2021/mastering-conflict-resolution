@@ -1,4 +1,4 @@
-# What is Mediation?
+
 
 Mediation is a process of resolving disputes between two or more parties with the help of a neutral third party, known as a mediator. In the context of workplace conflict resolution, mediation can be an effective tool for resolving conflicts and restoring working relationships.
 

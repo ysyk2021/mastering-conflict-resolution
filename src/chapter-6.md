@@ -1,4 +1,4 @@
-# Chapter 6: Mediation
+
 
 Mediation is a valuable tool for resolving workplace conflict. In this chapter, we will explore what mediation is, the mediator's role in conflict resolution, and the key skills needed for effective mediation.
 

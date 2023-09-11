@@ -1,4 +1,4 @@
-# Key Skills for Effective Collaborative Problem-Solving
+
 
 Collaborative problem-solving is an effective approach for resolving workplace conflicts. It involves working together to identify the problem, generate options, and select a course of action that meets everyone's needs. Successful collaborative problem-solving requires a specific set of skills.
 

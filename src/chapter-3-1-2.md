@@ -1,4 +1,4 @@
-# Strategies for Effective Communication in Workplace Conflict Resolution
+
 
 Effective communication is essential in resolving workplace conflict. Here are some strategies that can help improve communication and resolve conflicts more effectively:
 

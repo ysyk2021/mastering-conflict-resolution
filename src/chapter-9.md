@@ -1,4 +1,4 @@
-# Chapter 9: Conflict Resolution Strategies in the Workplace
+
 
 Conflict resolution is an essential skill for creating a productive and healthy workplace environment. In this chapter, we will explore steps for resolving workplace conflict, strategies for promoting a culture of conflict resolution in the workplace, and best practices for maintaining healthy workplace relationships.
 

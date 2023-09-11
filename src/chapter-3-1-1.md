@@ -1,4 +1,4 @@
-# The Importance of Effective Communication
+
 
 Effective communication is essential when it comes to resolving workplace conflict. Without clear and open lines of communication, conflicts can escalate, misunderstandings can occur, and emotions can run high. Here are some reasons why effective communication is so important in resolving workplace conflict:
 

@@ -1,4 +1,4 @@
-# Defining Facilitation
+
 
 Facilitation is a process of guiding a group to achieve its objectives by creating an open and inclusive environment. In the context of workplace conflict resolution, facilitation involves helping individuals or groups with different perspectives work together to reach a common goal.
 

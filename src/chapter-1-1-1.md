@@ -1,4 +1,4 @@
-# Negative Impacts of Unresolved Conflict
+
 
 Unresolved workplace conflict can have significant negative impacts on individuals and organizations. When conflicts are left unresolved, they can fester and escalate, leading to decreased productivity, lower morale, and even legal issues. In this chapter, we will explore the importance of addressing workplace conflict and the negative impacts of leaving it unresolved.
 

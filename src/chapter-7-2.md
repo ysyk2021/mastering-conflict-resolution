@@ -1,4 +1,4 @@
-# The Facilitator's Role In Managing Workplace Conflict
+
 
 Facilitation is a process of guiding a group to achieve its objectives by creating an open and inclusive environment. In the context of workplace conflict, a facilitator plays a crucial role in managing the conflict and guiding the group towards a resolution.
 

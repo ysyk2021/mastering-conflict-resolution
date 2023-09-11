@@ -1,4 +1,4 @@
-# Chapter 5: Negotiation
+
 
 Negotiation is a fundamental skill in conflict resolution. In this chapter, we will explore what negotiation is, strategies for successful negotiation, and the key skills needed for effective negotiation.
 

@@ -1,4 +1,4 @@
-# Conflict Arising from Organizational Change
+
 
 Organizational change can be a significant source of workplace conflict. Changes such as restructuring, downsizing, and mergers can disrupt established work relationships and create uncertainty among employees. Here are some strategies for addressing conflict arising from organizational change:
 

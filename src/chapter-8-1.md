@@ -1,4 +1,4 @@
-# What is Collaborative Problem-Solving?
+
 
 Collaborative problem-solving is a conflict resolution technique that involves working together to find a mutually beneficial solution. It is an approach where parties involved in a conflict take an active role in identifying the problem, generating options, and selecting a course of action.
 

@@ -1,4 +1,4 @@
-# Chapter 1: Defining Workplace Conflict
+
 
 Workplace conflict is a common phenomenon that can have significant impacts on individual employees, teams, and organizations. In this chapter, we will define workplace conflict and examine why it is important to address it. We will also identify common causes of workplace conflict and explore some of the key impacts that it can have.
 

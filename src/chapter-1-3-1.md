@@ -1,4 +1,4 @@
-# Negative Impacts on Employees
+
 
 Workplace conflict can have a significant impact on employees, both personally and professionally. Here are some of the negative impacts that workplace conflict can have on employees:
 

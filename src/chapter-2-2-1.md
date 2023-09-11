@@ -1,4 +1,4 @@
-# Managing Emotions during Workplace Conflict
+
 
 Emotions play a significant role in workplace conflict, often fueling disagreements, misunderstandings, and negative interactions among colleagues or superiors. Managing emotions effectively is essential for resolving workplace conflict and promoting a positive work environment. In this chapter, we will explore the role of emotions in workplace conflict and strategies for managing emotions during conflict.
 

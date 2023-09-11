@@ -1,4 +1,4 @@
-# Empathy
+
 
 Empathy is a critical tool for improving communication and resolving workplace conflict. When individuals show empathy, they can foster mutual understanding and promote collaboration. In this chapter, we will explore the benefits of empathy in workplace conflict and strategies for using it effectively.
 

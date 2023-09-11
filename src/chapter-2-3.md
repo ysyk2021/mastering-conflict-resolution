@@ -1,4 +1,4 @@
-# Identifying Unmet Needs in Workplace Conflict
+
 
 Unmet needs can be at the root of many workplace conflicts. When individuals do not feel that their needs are being met, they may become defensive, angry, or frustrated, leading to conflict. In this chapter, we will explore the concept of unmet needs in workplace conflict, how to identify them, and strategies for addressing them.
 

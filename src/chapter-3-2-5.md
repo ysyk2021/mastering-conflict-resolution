@@ -1,4 +1,4 @@
-# Non-Verbal Communication
+
 
 Non-verbal communication can be a significant communication barrier in workplace conflict. When individuals fail to recognize or use non-verbal cues effectively, they may struggle to communicate effectively, leading to misunderstandings and potential conflicts. In this chapter, we will explore the role of non-verbal communication in workplace conflict and strategies for addressing these issues.
 

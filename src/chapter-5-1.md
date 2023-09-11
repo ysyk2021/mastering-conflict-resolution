@@ -1,4 +1,4 @@
-# Defining Negotiation
+
 
 Negotiation is a process of communication between two or more parties with the goal of reaching a mutually beneficial solution. In the context of workplace conflict resolution, negotiation can be an effective tool for resolving conflicts and restoring working relationships.
 

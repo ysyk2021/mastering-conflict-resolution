@@ -1,4 +1,4 @@
-# Chapter 2: The Psychology of Workplace Conflict
+
 
 Understanding the psychological underpinnings of workplace conflict is essential for effectively resolving conflicts. In this chapter, we will explore some of the key concepts in the psychology of workplace conflict.
 

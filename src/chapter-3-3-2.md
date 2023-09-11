@@ -1,4 +1,4 @@
-# Clarification
+
 
 Clarification is a critical tool for improving communication and resolving workplace conflict. When individuals clarify their messages and confirm their understanding, they can reduce misunderstandings and promote effective communication. In this chapter, we will explore the benefits of clarification in workplace conflict and strategies for using it effectively.
 

@@ -1,4 +1,4 @@
-# Negative Impacts on Teams
+
 
 Workplace conflict can also have significant negative impacts on teams. When conflicts arise between team members, it can affect not only those individuals but also the entire team and its ability to work together effectively. In this chapter, we will explore some of the negative impacts of workplace conflict on teams.
 

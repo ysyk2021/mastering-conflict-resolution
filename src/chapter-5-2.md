@@ -1,4 +1,4 @@
-# Strategies for Successful Negotiation
+
 
 Negotiation is a process of communication between two or more parties with the goal of reaching a mutually beneficial solution. Effective negotiation requires a specific set of strategies that enable negotiators to communicate effectively, manage emotions, and find common ground.
 

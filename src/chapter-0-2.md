@@ -1,4 +1,4 @@
-# How to use this book
+
 
 Mastering Conflict Resolution: Best Practices for Resolving Workplace Conflict is designed to be a practical guide for anyone looking to improve their conflict resolution skills. Here are some tips for getting the most out of this book:
 

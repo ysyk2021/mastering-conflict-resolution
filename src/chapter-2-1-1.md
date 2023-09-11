@@ -1,4 +1,4 @@
-# Physiological and Psychological Effects of Conflict
+
 
 Workplace conflict can have a significant impact on employees, both physiologically and psychologically. Here are some of the physiological and psychological effects of workplace conflict:
 

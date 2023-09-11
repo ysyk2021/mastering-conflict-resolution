@@ -1,4 +1,4 @@
-# Power Struggles
+
 
 Power struggles are a common cause of workplace conflict. When individuals have conflicting goals or priorities, this can lead to competition or tension over who has the power or authority to make decisions. In this chapter, we will explore the impact of power struggles on workplace conflict and strategies for addressing these issues.
 

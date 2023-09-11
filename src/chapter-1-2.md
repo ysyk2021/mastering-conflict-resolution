@@ -1,4 +1,4 @@
-# Identifying Common Causes of Workplace Conflict
+
 
 Workplace conflict can arise from a variety of sources, and understanding the common causes of conflict is essential for resolving it effectively. In this chapter, we will explore some of the most common causes of workplace conflict.
 

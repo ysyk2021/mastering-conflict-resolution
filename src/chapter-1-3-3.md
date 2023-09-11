@@ -1,4 +1,4 @@
-# Negative Impacts on Organizations
+
 
 Workplace conflict can have significant negative impacts on organizations. When conflicts are not addressed and resolved in a timely and effective manner, they can lead to a range of problems that can affect the entire organization. In this chapter, we will explore some of the negative impacts of workplace conflict on organizations.
 

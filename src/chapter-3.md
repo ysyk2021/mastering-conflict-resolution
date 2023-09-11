@@ -1,4 +1,4 @@
-# Chapter 3: Communication and Workplace Conflict
+
 
 Effective communication is essential for resolving workplace conflict. In this chapter, we will explore how communication can impact conflicts in the workplace, common barriers to effective communication, and tools for improving communication.
 

@@ -1,4 +1,4 @@
-# Organizational Change or Restructuring
+
 
 Organizational change or restructuring is a common cause of workplace conflict. When organizations undergo significant changes such as mergers, acquisitions, restructurings, or downsizings, this can lead to uncertainty, mistrust, and conflict among employees. In this chapter, we will explore the impact of organizational change or restructuring on workplace conflict and strategies for addressing these issues.
 

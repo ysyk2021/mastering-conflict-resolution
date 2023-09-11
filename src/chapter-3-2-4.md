@@ -1,4 +1,4 @@
-# Inadequate Listening
+
 
 Inadequate listening can be a significant communication barrier in workplace conflict. When individuals fail to listen attentively or demonstrate empathy, they may struggle to communicate effectively, leading to misunderstandings and potential conflicts. In this chapter, we will explore the role of inadequate listening in workplace conflict and strategies for addressing these issues.
 

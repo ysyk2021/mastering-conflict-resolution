@@ -1,4 +1,4 @@
-# Addressing Unmet Needs in Workplace Conflict
+
 
 Identifying unmet needs is only the first step in resolving workplace conflict. Once unmet needs have been identified, it is essential to address them effectively to promote a positive work environment and productive relationships among colleagues and superiors. In this chapter, we will explore strategies for addressing unmet needs in workplace conflict.
 

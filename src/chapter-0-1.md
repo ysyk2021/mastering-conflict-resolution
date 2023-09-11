@@ -1,4 +1,4 @@
-# Why resolving workplace conflict matters
+
 
 Workplace conflict can have significant negative impacts on a company and its employees. Unresolved conflicts can damage morale, decrease productivity, and result in high employee turnover rates. When workplace conflicts are addressed constructively, however, they can help to highlight important issues, facilitate problem-solving, and improve relationships.
 

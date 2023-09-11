@@ -1,4 +1,4 @@
-# Steps for Resolving Workplace Conflict
+
 
 Resolving workplace conflict is essential for maintaining a healthy and productive workplace. When conflicts are left unaddressed, they can harm productivity, morale, and even the organization's bottom line. Here are some steps for resolving workplace conflict:
 

@@ -1,4 +1,4 @@
-# Cultural Competence
+
 
 Cultural competence is a critical tool for improving communication and resolving workplace conflict. When individuals are culturally competent, they understand and respect different cultural backgrounds, beliefs, and values. In this chapter, we will explore the benefits of cultural competence in workplace conflict and strategies for using it effectively.
 

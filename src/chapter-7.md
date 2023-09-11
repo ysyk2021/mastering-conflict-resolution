@@ -1,4 +1,4 @@
-# Chapter 7: Facilitation
+
 
 Facilitation is an essential skill for managing workplace conflict. In this chapter, we will explore what facilitation is, the facilitator's role in conflict resolution, and the key skills needed for effective facilitation.
 

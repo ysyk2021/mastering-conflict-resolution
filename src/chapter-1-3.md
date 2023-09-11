@@ -1,4 +1,4 @@
-# Understanding the Impacts of Workplace Conflict
+
 
 Workplace conflict can have significant impacts on employees, teams, and the organization as a whole. In this chapter, we will explore some of the most common impacts of workplace conflict.
 

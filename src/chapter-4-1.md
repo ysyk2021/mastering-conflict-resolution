@@ -1,4 +1,4 @@
-# Ethical Considerations in Workplace Conflict Resolution
+
 
 Ethics play a critical role in workplace conflict resolution. As professionals, we have a duty to act ethically and uphold our professional standards while also addressing the needs and interests of our clients or employers. When faced with ethical dilemmas, it can be challenging to find a balance that satisfies all parties involved.
 

@@ -1,4 +1,4 @@
-# The Role of Values in Workplace Conflict Resolution
+
 
 Values are an essential aspect of workplace conflict resolution. Our values guide our behavior, shape our beliefs, and influence our decision-making. As professionals, it is important to understand our own values and how they impact our approach to conflict resolution.
 

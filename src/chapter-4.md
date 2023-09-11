@@ -1,4 +1,4 @@
-# Chapter 4: Ethics and Workplace Conflict
+
 
 Ethics play a crucial role in resolving workplace conflict. In this chapter, we will explore the ethical considerations that arise during conflict resolution, the role of values in workplace conflict, and how to balance competing ethical obligations.
 

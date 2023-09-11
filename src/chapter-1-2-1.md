@@ -1,4 +1,4 @@
-# Differences in Values and Goals
+
 
 Workplace conflict can arise from a variety of sources, including differences in values and goals. When individuals hold different values or have conflicting goals, this can lead to misunderstandings, disagreements, and ultimately, conflict. In this chapter, we will explore the impact of differences in values and goals on workplace conflict, and strategies for addressing these differences.
 

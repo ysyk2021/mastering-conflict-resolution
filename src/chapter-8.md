@@ -1,4 +1,4 @@
-# Chapter 8: Collaborative Problem-Solving
+
 
 Collaborative problem-solving is a powerful approach for managing workplace conflict. In this chapter, we will explore what collaborative problem-solving is, approaches to successful implementation, and key skills needed for effective problem-solving.
 

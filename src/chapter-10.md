@@ -1,4 +1,4 @@
-# Chapter 10: Addressing Specific Types of Workplace Conflict
+
 
 While conflict in the workplace can take many forms, there are some specific types that are particularly common. In this chapter, we will explore strategies for addressing specific types of workplace conflict, including conflict between colleagues, conflict between managers and subordinates, conflict between departments, and conflict arising from organizational change.
 

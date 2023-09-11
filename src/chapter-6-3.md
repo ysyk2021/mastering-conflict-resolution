@@ -1,4 +1,4 @@
-# Key Skills for Effective Mediation
+
 
 Mediation is a process of resolving disputes between two or more parties with the help of a neutral third party, known as a mediator. Effective mediation requires a specific set of skills that enable the mediator to facilitate open communication, manage emotions, and guide the parties towards a mutually beneficial solution.
 

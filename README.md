@@ -1,4 +1,6 @@
+# Mastering Conflict Resolution: Best Practices for Resolving Workplace Conflict
 
+Book Link: [https://zhengpublishing.com/mastering-conflict-resolution-best-practices-for-resolving-workplace-conflict/](https://zhengpublishing.com/mastering-conflict-resolution-best-practices-for-resolving-workplace-conflict/)
 
 In today's fast-paced work environments, conflict is an inevitable part of daily life. Whether it's a disagreement over a project, tension between colleagues, or a clash of personalities, workplace conflict can have a significant impact on the productivity, morale, and overall success of an organization.
 

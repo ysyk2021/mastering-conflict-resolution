@@ -1,4 +1,4 @@
-# Conflict Between Departments
+
 
 Conflict between departments can arise from a variety of sources, including differences in goals, priorities, and resources. When left unaddressed, conflict between departments can harm productivity, morale, and even the organization's bottom line. Addressing conflict between departments is crucial for maintaining a healthy and effective workplace.
 
